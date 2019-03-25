@@ -1,4 +1,4 @@
-# Short_Story___Arrangement_In_White_Grey_and_Black
+# Short_Story___Arrangement_In_White_Grey_and_Black_Number_2
 
 -- Arrangement in White, Grey and Black Number 2
 
