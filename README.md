@@ -2,6 +2,9 @@
 
 -- Arrangement in White, Grey and Black Number 2
 
+-- Story by Sabarivasan Viswanathan
+-- Repurposed by Anand Manikutty
+
 As he rolled over in the middle of the night, he felt the need to pee. Not wanting to leave the comfort of his warm bed on a cold night, he tried to fight the urge, hoping he would fall asleep again. His bladder won the battle of wits in a few minutes. It always does. "This is why you should stop your stupid habit of taking a huge gulp of water just before hitting the bed", he chided himself as he walked over lazily to the restroom.
 
 His eyes still closed, he fumbled his way to the commode in the dark, sat down and started doing his business. (He didn't want to do it standing up, risking missing the target in the dark). A few seconds in, he felt something crawl on his feet. Having the presence of mind not to yell and wake up his wife, he reached out quickly and switched on the light. It was a cockroach. A reasonably big one, one that could fly. 'Damn it', he cursed. Ever since they started the construction work a couple of months ago, they had removed the insect screen on all his windows and the balcony door. He had been seeing a lot of creepy-crawlies enter the home since then.
